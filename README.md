@@ -8,6 +8,8 @@ I'm currently a **PhD Student in Political Science** at **Northwestern Universit
 - 💰 **American Political Economy**
 - 🗳 **Political Behavior**
 - 📊 **Qualitative Methods**
+- ⚖ **Race and Class Inequality**
+
 
 ## ⚡ Outside of Academia
 When I'm not researching, I enjoy:
