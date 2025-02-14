@@ -19,10 +19,9 @@ When I'm not researching, I enjoy:
 
 ## 🔗 Connect with Me
 You can follow me on:
-- 🟦 **BlueSky**
-- 🐦 **X (Twitter)**
+- 🟦 **[BlueSky]([url](https://bsky.app/profile/nrgonzalez.bsky.social))**
+- 🐦 **[X]([url](https://x.com/nrgonzalez05)) (Twitter)**
 
 Thanks for stopping by! 🚀
 
 
--->
