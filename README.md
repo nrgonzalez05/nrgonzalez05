@@ -7,7 +7,7 @@ I'm currently a **PhD Student in Political Science** at **Northwestern Universit
 - 🏙 **Urban Politics**
 - 💰 **American Political Economy**
 - 🗳 **Political Behavior**
-- 📊 **Qualitative Methods**
+- 🎤 **Qualitative Methods**
 - ⚖ **Race and Class Inequality**
 
 
